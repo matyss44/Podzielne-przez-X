@@ -1,0 +1,1 @@
+# Podzielne-przez-X
